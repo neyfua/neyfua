@@ -89,3 +89,5 @@ His music has classic R&B roots in it, but also combines modern sounds to make h
 His debut [extended play](https://en.wikipedia.org/wiki/Extended_play) (EP) *Noire* was released in December 2023, and received a [Juno Award](https://en.wikipedia.org/wiki/Juno_Award) nomination for [Contemporary R&B/Soul Recording of the Year](https://en.wikipedia.org/wiki/Juno_Award_for_Contemporary_R%26B/Soul_Recording_of_the_Year) at the [Juno Awards of 2025](https://en.wikipedia.org/wiki/Juno_Awards_of_2025). His debut album, *Mirage*, was released in September 2025.
     
 </div>
+
+---
