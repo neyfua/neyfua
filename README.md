@@ -27,6 +27,19 @@ Lamar's critical and commercial success continued with his [R&B](https://en.wiki
 
 ---
 
+<img src="https://github.com/user-attachments/assets/6bb6ad3f-dc66-4892-b059-b07355c8a54d" align="right" width="400">
+<div>
+
+**Frank Ocean** (born **Christopher Edwin Breaux**; October 28, 1987) is an American singer-songwriter and rapper. [His accolades](https://en.wikipedia.org/wiki/List_of_awards_and_nominations_received_by_Frank_Ocean) include two [Grammy Awards](https://en.wikipedia.org/wiki/Grammy_Awards) and a [Brit Award](https://en.wikipedia.org/wiki/Brit_Awards). He has been credited by several [music critics](https://en.wikipedia.org/wiki/Music_journalism) as a pioneer of the [alternative R&B](https://en.wikipedia.org/wiki/Alternative_R%26B) genre.
+
+Ocean began his musical career as a [ghostwriter](https://en.wikipedia.org/wiki/Ghostwriter) before joining the Los Angeles-based [hip hop](https://en.wikipedia.org/wiki/Hip_hop_music) collective [Odd Future](https://en.wikipedia.org/wiki/Odd_Future) in 2010. The year prior, he signed with [RedZone Entertainment](https://en.wikipedia.org/wiki/RedZone_Entertainment), an imprint of [Def Jam Recordings](https://en.wikipedia.org/wiki/Def_Jam_Recordings), although his debut [mixtape](https://en.wikipedia.org/wiki/Mixtape), *[Nostalgia, Ultra](https://en.wikipedia.org/wiki/Nostalgia,_Ultra)* (2011), was released [independently](https://en.wikipedia.org/wiki/Independent_music). His debut [studio album](https://en.wikipedia.org/wiki/Studio_album), the eclectic *[Channel Orange](https://en.wikipedia.org/wiki/Channel_Orange)* (2012), incorporated elements of [R&B](https://en.wikipedia.org/wiki/Alternative_R%26B) and [soul music](https://en.wikipedia.org/wiki/Soul_music). At the [55th Annual Grammy Awards](https://en.wikipedia.org/wiki/55th_Annual_Grammy_Awards), the album was nominated for [Album of the Year](https://en.wikipedia.org/wiki/Grammy_Award_for_Album_of_the_Year) and won [Best Urban Contemporary Album](https://en.wikipedia.org/wiki/Grammy_Award_for_Best_Urban_Contemporary_Album); its lead single, "[Thinkin Bout You](https://en.wikipedia.org/wiki/Thinkin_Bout_You_(Frank_Ocean_song))", was nominated for [Record of the Year](https://en.wikipedia.org/wiki/Grammy_Award_for_Record_of_the_Year). He was named by *[Time](https://en.wikipedia.org/wiki/Time_(magazine))* as one of the world's [100 most influential people](https://en.wikipedia.org/wiki/Time_100) in 2013.
+
+After a four-year hiatus, Ocean released the [visual album](https://en.wikipedia.org/wiki/Visual_album) *[Endless](https://en.wikipedia.org/wiki/Endless_(Frank_Ocean_album))* (2016) to fulfill contractual obligations with Def Jam. His second studio album, *[Blonde](https://en.wikipedia.org/wiki/Blonde_(Frank_Ocean_album))*, was released independently the following day. Expanding on Ocean's experimental approach, *Blonde* was met with critical acclaim, debuted atop the US [*Billboard* 200](https://en.wikipedia.org/wiki/Billboard_200), and ranked first on *[Pitchfork](https://en.wikipedia.org/wiki/Pitchfork_(website))*'s Best Albums of the 2010s Decade list. After 2017, Ocean has released sporadic singles, worked as a photographer for magazines, launched the fashion brand [Homer](https://en.wikipedia.org/wiki/Homer_(brand)), and started *Homer Radio*. 15 of Ocean's songs have entered the [*Billboard* Hot 100](https://en.wikipedia.org/wiki/Billboard_Hot_100), while four of his releases (singles or albums) have received [platinum](https://en.wikipedia.org/wiki/RIAA_certification) certification by the [Recording Industry Association of America](https://en.wikipedia.org/wiki/Recording_Industry_Association_of_America) (RIAA).
+    
+</div>
+
+---
+
 <img src="https://github.com/user-attachments/assets/42a41285-13c6-4140-aadf-504fd6b94243" align="right" width="400">
 <div>
     
@@ -60,4 +73,19 @@ Lanez's debut studio album, *[I Told You](https://en.wikipedia.org/wiki/I_Told_Y
 
 On August 8, 2023, Lanez was sentenced to ten years in prison after being convicted of shooting [Megan Thee Stallion](https://en.wikipedia.org/wiki/Megan_Thee_Stallion) in 2020. He was found guilty of first-degree assault with a firearm, discharge of a firearm with gross negligence, and having a concealed firearm in a vehicle. 
 
+</div>
+
+---
+
+<img src="https://github.com/user-attachments/assets/916a7a2e-89b6-4fbe-ac29-ea524af8b454" align="right" width="400">
+<div>
+
+**Caleb Odidi**, (born 2002 or 2003), known professionally as **Avenoir**, is a [Canadian](https://en.wikipedia.org/wiki/Canadian) [R&B](https://en.wikipedia.org/wiki/Rhythm_and_blues) singer and songwriter born in [Cape Town](https://en.wikipedia.org/wiki/Cape_Town), [South Africa](https://en.wikipedia.org/wiki/South_Africa), but was raised primarily in [Edmonton](https://en.wikipedia.org/wiki/Edmonton), [Alberta](https://en.wikipedia.org/wiki/Alberta). He first embarked on his musical career in 2022 with the release of his debut single "TMW".
+
+Before his music career, Avenoir was in the tech field. In a Q&A with *[Ones To Watch](https://en.wikipedia.org/wiki/Ones_to_Watch)*, he talked about he used to be "just a back end guy", and how he doesn't "have passion for that though like I do for music". He revealed to *[Schön!](https://en.wikipedia.org/wiki/Sch%C3%B6n!)* that he first got into music through his piano, where his "emotions would speak through the melody". For him, his piano is essential to making music. He would later say that he is "a pianist first", and that a majority of his ideas come from his piano. His music is widely inspired by artists like [Static Major](https://en.wikipedia.org/wiki/Static_Major) and [Swing Mob](https://en.wikipedia.org/wiki/Swing_Mob). He first started writing music in 2022, right after a breakup, where his hopes were that if he wrote the song "she’ll hear it and catch some feelings again", but instead the song titled "TMW" gained popularity and he became successful.
+
+His music has classic R&B roots in it, but also combines modern sounds to make his own. In February 14, 2022, he released "TMW" — his first ever written and published song — which is said to have a "dreamy and cloudy sound" which is made through his "melodic vocals" and "classic jazzy instrumentals". He follows "TMW" with "Eve" which has a slower pace and more melodic than his previous track. His last release in 2022 was "Shameless", which was produced by YMX. This track had more of a focus on the lyrical side.
+
+His debut [extended play](https://en.wikipedia.org/wiki/Extended_play) (EP) *Noire* was released in December 2023, and received a [Juno Award](https://en.wikipedia.org/wiki/Juno_Award) nomination for [Contemporary R&B/Soul Recording of the Year](https://en.wikipedia.org/wiki/Juno_Award_for_Contemporary_R%26B/Soul_Recording_of_the_Year) at the [Juno Awards of 2025](https://en.wikipedia.org/wiki/Juno_Awards_of_2025). His debut album, *Mirage*, was released in September 2025.
+    
 </div>
